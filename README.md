@@ -14,6 +14,10 @@
     feel free to int! i dont bite and you're always free to come talk to me
 </p>
 
+<p align="center">
+    https://rentry.co/whitekaeyas
+</p>
+
 <p align="center" width="100%">
     <img width="33%" src="https://files.catbox.moe/fwmfav.png">
 </p>
